@@ -1,5 +1,5 @@
 # Shtaniuk Ulyana
-## 21 year old. Livivng in Minsk, Belarus 
+## 21 year old. Living in Minsk, Belarus 
 # My education
 * Gymnasium №29 (2008-2019)
 * BSU, faculty of journalism (2019-till now )
