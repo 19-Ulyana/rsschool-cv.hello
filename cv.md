@@ -1,20 +1,21 @@
-# Штанюк Ульяна Игоревна 
-## 21 год, живу в городе Минске, Республика Беларусь
-# Мое обучение 
-* Гимназия №29 (2008-2019)
-* БГУ, факультет журналистики (2019-по сегодняшний день)
-# Мое место работы
-* Тренер в спортивном клубе по акробатике
-# Мои спортивные достижения 
-* Многократный призер Республиканских и международных соревнований и чемпионатов 
-* Участник международных мастер-классов и семинаров
-## Знания английского языка **на уровне B1-B2**
-# Мои сильные стороны как личности
-* Ответсвенность
-* Пунктуальность 
-* Грамотоность
-* Коммуникабельность 
-* Упорство 
-# Я в социальных сетях
+# Shtaniuk Ulyana
+## 21 year old. Livivng in Minsk, Belarus 
+# My education
+* Gymnasium №29 (2008-2019)
+* BSU, faculty of journalism (2019-till now )
+# My place of work
+* Coach of acrobatics and cheerleading
+# My sports achievments  
+* Winner of republicans and international championships 
+* Member of international master-classes and seminars 
+### My english level B1-B2 
+#### (i have been learining english from my first class of school. Attended english courses _"International house"_ for 6 years. Every year have practises of english with native speakers during my coach work)
+# My strengths as a person
+* Responsibility
+* Punctuality
+* Literacy 
+* Sociability 
+* PerseveranceУпорство 
+# My social networks
 * [VK](https://vk.com/shtaniuuuk)
 * [Instagram](https://vk.com/away.php?to=https%3A%2F%2Finstagram.com%2Fshtaniuuuk%3Figshid%3DYmMyMTA2M2Y%3D&cc_key=)
