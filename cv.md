@@ -1,4 +1,6 @@
 # Shtaniuk Ulyana
+![photo] ![photo for CV](https://user-images.githubusercontent.com/117119001/206406687-5dbc7e8d-d824-494c-8016-6096df55067d.jpeg "My photo")
+
 ## 21 year old. Living in Minsk, Belarus 
 # My education
 * Gymnasium №29 (2008-2019)
@@ -15,7 +17,7 @@
 * Punctuality
 * Literacy 
 * Sociability 
-* PerseveranceУпорство 
+* Perseverance
 # My social networks
 * [VK](https://vk.com/shtaniuuuk)
 * [Instagram](https://vk.com/away.php?to=https%3A%2F%2Finstagram.com%2Fshtaniuuuk%3Figshid%3DYmMyMTA2M2Y%3D&cc_key=)
